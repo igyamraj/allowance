@@ -1,0 +1,2 @@
+# allowance
+Related to $DEGEN
